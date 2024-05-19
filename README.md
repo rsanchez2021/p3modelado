@@ -94,6 +94,8 @@ Escenario Floor: https://urjc-my.sharepoint.com/:f:/g/personal/r_sanchezd_2021_a
 
 ## **Parte A**
 
+Enlace al video: https://youtu.be/EKvFsomgBFQ
+
 
 
 
